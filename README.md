@@ -1,3 +1,3 @@
 # Lab 4
-Name:\
-Help Received:
+Name:Cole Kricken
+Help Received:not needed, have a nice day
